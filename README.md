@@ -1,0 +1,45 @@
+# Duffy – ディスタント・ドリーマー
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Although you think I cope
+my head is filled with hope
+of some place other than here
+Although you think I smile
+inside all the while
+I'm wondering
+about my destiny
+I'm thinking about
+all the things
+I'd like to do in my life
+I'm a dreamer
+a distant dreamer
+dreaming for hope
+from today
+Even when you see me frown
+my heart won't let me down
+because I know there's
+better things to come
+(Woah Yeah)
+And when life gets tough
+I feel I've had enough
+I hold on to a distant star
+I'm thinking about
+all the things
+I'd like to do in my life
+I'm a dreamer
+A distant dreamer
+dreaming for hope from today
+I'm a dreamer
+A distant dreamer
+dreaming for hope from today
+Yeah I'm a dreamer
+<♪>
+I'm a dreamer
+a distant dreamer
+dreaming for hope from today
+Yeah i'm a dreamer
+<♪>
+I'm a dreamer
+```
